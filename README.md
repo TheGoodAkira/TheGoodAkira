@@ -2,12 +2,12 @@
 
 ~Meu nome é Akira~
 
--Fazendo isso só por causa da [Alura](https://cursos.alura.com.br/)
-- Sou escritora 📓
+- Fazendo isso só por causa do [Alura](https://cursos.alura.com.br/)
+- Sou escritora 📖
 - Fã de animais de pelúcia e chocolate 🙂
 - Meio desenhista 🖌️
 - Hater de atividade física 😖
-- Bruxinha aprendiz 🌙
+- Bruxinha mirim 🌙
 
 - ### A verdadeira magia está em ajudar e fazer o bem.
 
