@@ -1,16 +1,14 @@
-### Hi there 👋
+### Bem vindo ao incrível de Akira 🌟
 
-<!--
-**TheGoodAkira/TheGoodAkira** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+~Meu nome é Akira~
 
-Here are some ideas to get you started:
+-Fazendo isso só por causa da [Alura](https://cursos.alura.com.br/)
+- Sou escritora 📓
+- Fã de animais de pelúcia e chocolate 🙂
+- Meio desenhista 🖌️
+- Hater de atividade física 😖
+- Bruxinha aprendiz 🌙
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- ### A verdadeira magia está em ajudar e fazer o bem.
+
+  ![](https://media1.tenor.com/m/P7BMiKiq6ysAAAAC/embarrassed-sailor.gif)
