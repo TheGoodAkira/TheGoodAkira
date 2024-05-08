@@ -1,4 +1,4 @@
-### Bem vindo ao incrível de Akira 🌟
+### Bem vindo ao incrível mundo de Akira 🌟
 
 ~Meu nome é Akira~
 
