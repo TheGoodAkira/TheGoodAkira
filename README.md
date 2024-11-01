@@ -11,4 +11,4 @@
 
 - ### A verdadeira magia está em ajudar e fazer o bem.
 
-  ![](https://tenor.com/pt-BR/view/kromia-vr-chat-vrc-furrmia-dance-gif-25030324))
+  ![](https://media1.tenor.com/m/SN105LAhhQAAAAAd/kromia-vr-chat.gif)
