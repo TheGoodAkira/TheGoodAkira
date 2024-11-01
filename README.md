@@ -11,4 +11,4 @@
 
 - ### A verdadeira magia está em ajudar e fazer o bem.
 
-  ![](https://media1.tenor.com/m/P7BMiKiq6ysAAAAC/embarrassed-sailor.gif)
+  ![](https://tenor.com/pt-BR/view/kromia-vr-chat-vrc-furrmia-dance-gif-25030324))
